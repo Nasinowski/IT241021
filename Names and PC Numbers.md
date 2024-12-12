@@ -17,7 +17,7 @@ Pawandeep Singh Pawandeep Singh
 Sarah Plamondon Brunet : PC211-01  
 Prajwal Prajwal
 Abhishek Rana
-Sandeep Kaur Sandeep Kaur
+Sandeep Kaur Sandeep Kaur:PC211-PC20
 Jaspreet Singh
 Rehmatpreet Singh
 Seeratpal Singh
