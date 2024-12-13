@@ -12,7 +12,7 @@ Ritish Manhas
 Ned Monte
 Ryan Mouzyane
 Parikshit Parikshit
-Parul Parul
+Parul Parul: PC211-p13
 Pawandeep Singh Pawandeep Singh
 Sarah Plamondon Brunet : PC211-01  
 Prajwal Prajwal
